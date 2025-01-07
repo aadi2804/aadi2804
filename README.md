@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @aadi2804
-- 👀 I’m interested in coding,learning new technologies
+- 👀 I’m interested in coding and learning new technologies
 - 🌱 I’m currently pursuing MCA
 - 💞️ I’m looking to collaborate on -- (will provide details soon)
 - 📫 How to reach me --(will provide details soon)
